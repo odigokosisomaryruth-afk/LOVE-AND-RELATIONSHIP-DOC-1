@@ -1,7 +1,6 @@
-###Love and freindship
+#Love and freindship
 ***Transcriber’s Note
->>>A few very small changes have been made to this version: Italics have been converted to capitals. The British ‘pound’ symbol has been converted to ‘L’; but in general the author’s erratic spelling, 
-punctuation and capitalisation have been retained>>>***
+>>>A few very small changes have been made to this version: Italics have been converted to capitals. The British ‘pound’ symbol has been converted to ‘L’; but in general the author’s erratic spelling, punctuation and capitalisation have been retained>>>
 +++How often, in answer to my repeated instreaties that you would give my daughter a regular detail of the Misfortunes and Adventures of tour Life, have you said “No, my friend never will I comply with your request till I may be no longer in Danger of again experiencing such dreadful ones, Surely that time is now at hand. You are this day 55. If a 
 woman may ever be said to be in safety from the determined Perseverance of disagreeable Lovers and of obstinate Fathers, surly it must be at such a time of Life. Isabel
 As the daughter of my most intimate freind I think you entitled to that Knowledge of my unhappy story, which your mother has so often solicited me to give you 
