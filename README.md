@@ -15,4 +15,4 @@ When I had reached my eighteenth Year I was recalled by my Parents to my paterna
 Uske.
 3. Tho’ my Charms are now considerable softened and somewhat impaired by the Misfortunes I have undergone I was once beautiful.
 4. But lovely as I was the Graces of my Perfections. Of every accomplishment accustomary to my sex, I was Mistress. Had always exceeded my instructions,
->My Acquirements had been wonderful for my age.
+>My Acquirements had been wonderful for my age.>
