@@ -1,7 +1,7 @@
-###love and friendship###
+###love and friendship
 ***
 ***Transcriber’s Note***
->>>A few very small changes have been made to this version: Italics have been converted to capitals. The British ‘pound’ symbol has been converted to ‘L’; but in general the author’s erratic spelling, punctuation and capitalisation have been retained>>>
+A few very small changes have been made to this version: Italics have been converted to capitals. The British ‘pound’ symbol has been converted to ‘L’; but in general the author’s erratic spelling, punctuation and capitalisation have been retained.
 
 ***How often, in answer to my repeated instreaties that you would give my daughter a regular detail of the Misfortunes and Adventures of tour Life.
 Have you said “No, my friend never will I comply with your request till I may be no longer in Danger of again experiencing such dreadful ones.
@@ -13,4 +13,5 @@ Education at a Convent in France.
 When I had reached my eighteenth Year I was recalled by my Parents to my paternal roof in Wales. Our mansion was situated in one of the most romantic parts of the Vale of 6 
 Uske.
 3. Tho’ my Charms are now considerable softened and somewhat impaired by the Misfortunes I have undergone I was once beautiful.
-4. But lovely as I was the Graces of my Perfections. Of every accomplishment accustomary to my sex, I was Mistress. Had always exceeded my instructions, >>>my Acquirements had been wonderful for my age
+4. But lovely as I was the Graces of my Perfections. Of every accomplishment accustomary to my sex, I was Mistress. Had always exceeded my instructions,
+>>>my Acquirements had been wonderful for my age.
